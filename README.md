@@ -16,4 +16,4 @@
 
 > I struggle putitng myself knto others shoes so if i seem rude or dismisisve of rhings i apolgoize . autism . I sometimes struggle with empathy amd emotiojs So sorry !
 
-> I really like bugs, media, and all genres of art.  I love history and weird/dark sruff but dont think im pro nazi or pro gore those people are unbearably annoying. I just like facts and learning.
+> I really like bugs, media, and all genres of art.  I love history and weird/dark sruff but dont think im pro nazi or pro gore those people are unbearably annoying. I just like facts and learning. Also proship or darkship anything like that dni i don't like that shit so its a simple boundary 🪖. 
